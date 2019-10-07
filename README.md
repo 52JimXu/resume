@@ -12,7 +12,7 @@
 
 - 练习时长两年半的java后端程序员
 - 手机: 13551610307
-- 邮箱 aanxuanjin@gmail.com
+- 邮箱 xuwanjin@jimxu.top
 - 期望城市:成都
 ---
 
